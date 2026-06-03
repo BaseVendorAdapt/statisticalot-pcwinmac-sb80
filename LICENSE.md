@@ -1,4 +1,4 @@
-# 
+# Best statistical arbitrage bot extensions for Mac OS | Professional statistical arbitrage bot extensions for PC Windows. Featuring historical data analysis and token swaps — optimized for maximum performance on every platform.
 
 
 
